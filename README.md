@@ -18,3 +18,6 @@ You have no hope, just wait for the reboot :)
 
 VIRUS THAT SHUTS DOWN YOUR PC
 You have no hope, just wait for the reboot :)
+
+
+USE THEM AT YOUR OWN RISK
